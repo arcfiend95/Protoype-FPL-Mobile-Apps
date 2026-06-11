@@ -1,2 +1,2 @@
-This is the core of the apps, For full applications i you can download it from drive
-https://l1nk.dev/j4q69o5
+This is the core of the apps, For full applications and updated screen you can download it from drive
+https://l1nk.dev/2008pa3
